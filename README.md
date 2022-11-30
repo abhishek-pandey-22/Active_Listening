@@ -2,21 +2,21 @@
 
 What are the steps/strategies to do Active Listening? (Minimum 6 points)
 
--> To follow Active listening startegies any one should must  go through given steps:-
+-> To follow Active listening startegies any one should must  go through given steps:-<br>
 
-1.Face the speaker and with eye contact means Face to Face conversation is required.
-2.Pay attention to what the other person is saying with their body language.
-3.You can’t listen and prepare at the same time first let other person complete his statement.
-4.Made body poschutre that you are listening.
-5.Learn to be away from distraction.
-6.Not to jump,judge and justify without listening completely.
-
-
-
-According to Fisher's model, what are the key points of Reflective Listening? (Write in your own words, use simple English)
+1.Face the speaker and with eye contact means Face to Face conversation is required.<br>
+2.Pay attention to what the other person is saying with their body language.<br>
+3.You can’t listen and prepare at the same time first let other person complete his statement.<br>
+4.Made body poschutre that you are listening.<br>
+5.Learn to be away from distraction.<br>
+6.Not to jump,judge and justify without listening completely.<br>
 
 
-What are the obstacles in your listening process?
+
+According to Fisher's model, what are the key points of Reflective Listening? (Write in your own words, use simple English)<br>
+
+
+What are the obstacles in your listening process?<br>
 
 -> At time of listening there happen some obstacles like:-
  1. Physiological Barriers: - some people may have genuine hearing problems or
@@ -39,11 +39,11 @@ with the ability to understand the meaning of words that are pronounced
 differently.
 
 6. Lack of Training :- Listening is not an inborn skill. People are not born good
-listeners. It is developed through practice and training.
+listeners. It is developed through practice and training.<br>
 
 
 
-What can you do to improve your listening?
+What can you do to improve your listening?<br>
 
  1. Determine Your Default Listening Style.
  2. Establish Why You’re Listening.
@@ -53,9 +53,9 @@ What can you do to improve your listening?
  6. Adapt Your Listening Style to Achieve Conversational Goals.
  
  
-When do you switch to Passive communication style in your day to day life?
+When do you switch to Passive communication style in your day to day life?<br>
 
-As We’ve Already Established, Passive Communication Is An Ineffective Way Of Getting One’s Views Across. Passive Communicators Rarely Express Their Needs, Thoughts Or Feelings In Public. Instead, They Hide Their Emotions And Let Others ‘Walk Over Them’. While A Passive Communication Style May Seem Harmless, It’s Not. Because It Makes People Believe That Such Communicators Are Powerless, Pushovers Or Uninterested, When That May Be Far From The Truth.
+As We’ve Already Established, Passive Communication Is An Ineffective Way Of Getting One’s Views Across. Passive Communicators Rarely Express Their Needs, Thoughts Or Feelings In Public. Instead, They Hide Their Emotions And Let Others ‘Walk Over Them’. While A Passive Communication Style May Seem Harmless, It’s Not. Because It Makes People Believe That Such Communicators Are Powerless, Pushovers Or Uninterested, When That May Be Far From The Truth.<br>
 
 “I’m Unable To Stand Up For What I Believe In”
 
@@ -63,15 +63,15 @@ As We’ve Already Established, Passive Communication Is An Ineffective Way Of G
 
 “I Will Always Agree With You Because You’re So Much Smarter Than Me!”
 
-“You’re Right, It Was My Fault. I’m A Horrible Human Being”
+“You’re Right, It Was My Fault. I’m A Horrible Human Being”<br>
 
-When do you switch into Aggressive communication styles in your day to day life?
+When do you switch into Aggressive communication styles in your day to day life?<br>
  
- No I am not into Agggressive communication styles in any way.
+ No I am not into Agggressive communication styles in any way.<br>
 
-When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?
+When do you switch into Passive Aggressive (sarcasm/gossiping/taunts/silent treatment and others) communication styles in your day to day life?<br>
 
-It happen with me very ocassionaly 
+It happen with me very ocassionaly <br>
 
 How can you make your communication assertive? You can analyse the videos and then think what steps you can apply in your own life? (Watch the videos first before answering this question.)
 
